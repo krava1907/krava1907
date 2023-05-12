@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @krava1907
 - 👀 I’m interested in  деньги
 - 🌱 I’m currently learning на трейдера
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on по крипте
 - 📫 How to reach me  tg:OleggCrypto
 
 <!---
